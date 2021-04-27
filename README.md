@@ -4,6 +4,8 @@
 - 💞️ I’m open to any collaboration.
 - 📫 You can reach me via
 - Email : dukundanedanny1@gmail.com
+- 🎨 see by work.
+- https://www.behance.net/danieldukundane
 
 <!---
 Daniel-Dukundane/Daniel-Dukundane is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
